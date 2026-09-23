@@ -1,1 +1,1 @@
-# lab-9
+This document focuses on marketing copy and compliance for aviation campaigns. It explains how to create platform-specific promotional content using verified facts, avoid misleading claims, adapt tone and format, perform fact-difference and register checks, and use compliance checklists. It also highlights the importance of human review before publication. 
